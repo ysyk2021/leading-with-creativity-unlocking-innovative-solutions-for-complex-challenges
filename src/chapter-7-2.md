@@ -1,5 +1,4 @@
-Chapter 6: Overcoming Resistance to Change: Techniques for Addressing Resistance to Change
-==========================================================================================
+# Techniques for Addressing Resistance to Change
 
 Resistance to change is a common challenge faced by leaders who are trying to implement innovative solutions. Effective creative leaders must be able to navigate resistance and overcome barriers in order to drive impactful outcomes. In this chapter, we'll explore techniques for addressing resistance to change.
 

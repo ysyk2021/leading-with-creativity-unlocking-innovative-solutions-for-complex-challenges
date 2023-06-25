@@ -1,4 +1,4 @@
-Introduction: The Importance of Leading with Creativity in Modern Leadership
+The Importance of Leading with Creativity in Modern Leadership
 ============================================================================
 
 In today's fast-paced, ever-changing world, organizations and communities face increasingly complex challenges. These challenges require innovative solutions that may not be immediately obvious. That's where leading with creativity comes in.

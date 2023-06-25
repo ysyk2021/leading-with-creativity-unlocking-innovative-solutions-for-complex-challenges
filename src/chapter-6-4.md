@@ -1,5 +1,4 @@
-Chapter 5: Practicing Design Thinking: Building Prototypes and Testing Assumptions
-==================================================================================
+# Building Prototypes and Testing Assumptions
 
 Design thinking is a powerful problem-solving approach that emphasizes empathy, creativity, and experimentation. In this chapter, we'll explore the importance of building prototypes and testing assumptions in the design thinking process.
 

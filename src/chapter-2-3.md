@@ -1,5 +1,4 @@
-Chapter 1: Understanding the Power of Creative Leadership: Developing Self-Awareness as a Creative Leader
-=========================================================================================================
+# Developing Self-Awareness as a Creative Leader
 
 Effective creative leadership requires a high level of self-awareness. In this chapter, we'll explore why self-awareness is critical to creative leadership and provide strategies for developing self-awareness as a creative leader.
 

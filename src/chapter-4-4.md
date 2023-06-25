@@ -1,5 +1,4 @@
-Chapter 3: Encouraging Diverse Perspectives: Building a Culture of Respect and Appreciation for Difference
-==========================================================================================================
+# Building a Culture of Respect and Appreciation for Difference
 
 Encouraging diverse perspectives is critical for unlocking innovative solutions to complex challenges. Effective creative leaders must be able to build a culture of respect and appreciation for difference, and prioritize inclusivity and diversity in all aspects of their work. In this chapter, we'll explore techniques for building a culture of respect and appreciation for difference.
 

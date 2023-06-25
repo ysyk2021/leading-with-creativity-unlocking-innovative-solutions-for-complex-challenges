@@ -1,5 +1,4 @@
-Chapter 5: Practicing Design Thinking: Recognizing the Importance of Design Thinking in Creative Leadership
-===========================================================================================================
+# Recognizing the Importance of Design Thinking in Creative Leadership
 
 Design thinking is a powerful tool for unlocking innovative solutions to complex challenges. By prioritizing empathy, experimentation, and iteration, leaders can generate and implement new ideas and approaches. In this chapter, we'll explore the importance of design thinking in creative leadership.
 

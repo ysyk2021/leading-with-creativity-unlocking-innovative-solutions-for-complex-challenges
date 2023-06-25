@@ -1,5 +1,4 @@
-Chapter 4: Fostering Innovation and Creativity: Developing an Environment that Supports Ideation and Experimentation
-====================================================================================================================
+# Developing an Environment that Supports Ideation and Experimentation
 
 In order to foster innovation and creativity, leaders must create an environment that supports ideation and experimentation. In this chapter, we'll explore techniques for developing an environment that supports ideation and experimentation.
 

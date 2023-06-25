@@ -1,5 +1,4 @@
-Chapter 6: Overcoming Resistance to Change: The Importance of Overcoming Resistance to Change in Creative Leadership
-====================================================================================================================
+# The Importance of Overcoming Resistance to Change in Creative Leadership
 
 Resistance to change is a common challenge faced by leaders who are trying to implement innovative solutions. Effective creative leaders must be able to navigate resistance and overcome barriers in order to drive impactful outcomes. In this chapter, we'll explore the importance of overcoming resistance to change in creative leadership.
 

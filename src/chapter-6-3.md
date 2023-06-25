@@ -1,5 +1,4 @@
-Chapter 5: Practicing Design Thinking: Developing Empathy for Customers and Stakeholders
-========================================================================================
+# Developing Empathy for Customers and Stakeholders
 
 Developing empathy for customers and stakeholders is a critical component of design thinking. In this chapter, we'll explore the importance of empathy in creative leadership and provide techniques for developing empathy for customers and stakeholders.
 

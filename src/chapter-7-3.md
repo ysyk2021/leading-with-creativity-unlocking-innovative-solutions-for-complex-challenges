@@ -1,5 +1,4 @@
-Chapter 6: Overcoming Resistance to Change: Developing Effective Communication Strategies
-=========================================================================================
+# Developing Effective Communication Strategies
 
 Effective communication is essential for overcoming resistance to change. Leaders must be able to articulate their vision for change, and inspire team members to support the initiative. In this chapter, we'll explore techniques for developing effective communication strategies to overcome resistance to change.
 

@@ -1,5 +1,4 @@
-Chapter 1: Understanding the Power of Creative Leadership: Overview of Creative Leadership Theory
-=================================================================================================
+# Overview of Creative Leadership Theory
 
 Creative leadership is a powerful approach to unlocking innovative solutions for complex challenges. At its core, creative leadership theory suggests that leaders who prioritize creativity and innovation in their decision-making processes are more likely to succeed.
 

@@ -1,5 +1,4 @@
-Chapter 4: Fostering Innovation and Creativity: Building a Culture of Continuous Improvement and Learning
-=========================================================================================================
+# Building a Culture of Continuous Improvement and Learning
 
 Fostering innovation and creativity is critical for unlocking innovative solutions to complex challenges. Effective creative leaders must be able to build a culture of continuous improvement and learning, and prioritize experimentation and iteration in all aspects of their work. In this chapter, we'll explore techniques for fostering innovation and creativity.
 

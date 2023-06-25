@@ -1,5 +1,4 @@
-Chapter 1: Understanding the Power of Creative Leadership: Identifying Different Components of Creative Leadership
-==================================================================================================================
+# Identifying Different Components of Creative Leadership
 
 Effective creative leadership involves multiple components, including:
 
