@@ -1,4 +1,4 @@
-Conclusion: Encouragement to Apply These Principles in Your Own Leadership Practices
+Encouragement to Apply These Principles in Your Own Leadership Practices
 ====================================================================================
 
 In this book, we've explored the power of creative leadership and how it can unlock innovative solutions to complex challenges. We've discussed the importance of embracing ambiguity and uncertainty, building a culture of innovation, developing self-awareness as a creative leader, and building trust through effective creative leadership practices.
