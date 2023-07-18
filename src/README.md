@@ -8,5 +8,4 @@ Whether you're an entrepreneur, business leader, educator, or simply someone loo
 
 Leading with Creativity: Unlocking Innovative Solutions for Complex Challenges is more than just a book. It's a roadmap for personal and professional growth, providing valuable insights and strategies for navigating even the most challenging situations. Whether you're facing difficult times or simply looking to take your problem-solving skills to the next level, this book will provide you with the tools and inspiration needed to succeed. So let's dive in and start leading with creativity!
 
-
 MingHai Zheng is the founder of zhengpublishing.com and lives in Wuhan, China. His main publishing areas are business, management, self-help, computers and other emerging foreword fields.
