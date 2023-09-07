@@ -1,4 +1,3 @@
-# Developing a Collaborative Culture that Values Diverse Perspectives
 
 Developing a collaborative culture that values diverse perspectives is critical for unlocking innovative solutions to complex challenges. Effective creative leaders must be able to foster an environment where team members feel valued and respected, and where diverse perspectives are encouraged and celebrated. In this chapter, we'll explore techniques for developing a collaborative culture that values diverse perspectives.
 

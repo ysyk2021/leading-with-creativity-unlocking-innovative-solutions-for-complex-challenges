@@ -1,5 +1,3 @@
-Conclusion
-==========
 
 In this book, we've explored the power of creative leadership to unlock innovative solutions for complex challenges. We've discussed the importance of embracing ambiguity and uncertainty, building a culture of innovation, developing self-awareness as a creative leader, and building trust through effective creative leadership practices.
 

@@ -1,5 +1,3 @@
-Chapter 4: Fostering Innovation and Creativity
-==============================================
 
 Innovation and creativity are critical components of effective creative leadership. In this chapter, we'll explore the importance of fostering innovation and creativity, techniques for promoting innovation and creativity, developing an environment that supports ideation and experimentation, and building a culture of continuous improvement and learning.
 

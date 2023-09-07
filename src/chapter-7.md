@@ -1,4 +1,3 @@
-# Chapter 6: Overcoming Resistance to Change
 
 ## The Importance of Overcoming Resistance to Change in Creative Leadership
 

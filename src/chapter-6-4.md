@@ -1,6 +1,3 @@
-# Building Prototypes and Testing Assumptions
-
-## Introduction
 
 In the pursuit of unlocking innovative solutions for complex challenges, creative leaders understand the value of experimentation and iteration. Building prototypes and testing assumptions are integral components of the creative process that enable leaders to validate ideas, gather feedback, and refine their solutions. This chapter explores the significance of building prototypes and testing assumptions in creative leadership and how they drive the development of successful and customer-centric solutions.
 

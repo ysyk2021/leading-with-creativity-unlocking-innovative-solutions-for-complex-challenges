@@ -1,5 +1,3 @@
-Chapter 1: Understanding the Power of Creative Leadership
-=========================================================
 
 Creative leadership is a powerful approach to unlocking innovative solutions for complex challenges. In this chapter, we'll explore the theory behind creative leadership and identify different components of effective creative leadership. We'll also discuss the importance of developing self-awareness as a creative leader and building trust through effective creative leadership practices.
 

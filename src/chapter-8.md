@@ -1,5 +1,3 @@
-Chapter 7: Applying Creative Leadership to Real-World Challenges
-================================================================
 
 Creative leadership is a powerful approach to unlocking innovative solutions to complex challenges. In this chapter, we'll explore the importance of applying creative leadership to real-world challenges, techniques for integrating creative leadership into problem-solving, addressing common obstacles and challenges in applying creative leadership to real-world challenges, and building a legacy of creative leadership-driven solutions.
 

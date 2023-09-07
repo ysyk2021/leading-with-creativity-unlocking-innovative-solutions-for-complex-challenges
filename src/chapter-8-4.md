@@ -1,4 +1,3 @@
-# Building a Legacy of Creative Leadership-Driven Solutions
 
 Applying creative leadership to real-world challenges can have a significant impact on organizations and communities. In this chapter, we'll explore how leaders can build a legacy of creative leadership-driven solutions that continue to drive innovation and impact long after they're implemented.
 

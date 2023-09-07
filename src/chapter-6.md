@@ -1,4 +1,3 @@
-# Chapter 5: Practicing Design Thinking
 
 ## Recognizing the Importance of Design Thinking in Creative Leadership
 

@@ -1,4 +1,3 @@
-# Techniques for Practicing Design Thinking Effectively
 
 Design thinking is a powerful tool for generating and implementing innovative solutions to complex challenges. However, in order to practice design thinking effectively, leaders must be able to navigate ambiguity and uncertainty, and prioritize empathy, experimentation, and iteration. In this chapter, we'll explore techniques for practicing design thinking effectively.
 

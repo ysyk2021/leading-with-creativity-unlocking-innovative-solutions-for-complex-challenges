@@ -1,5 +1,3 @@
-What is Creative Leadership?
-==========================================
 
 Creative leadership is a powerful approach to unlocking innovative solutions to complex challenges. At its core, creative leadership involves prioritizing creativity and innovation in decision-making processes.
 

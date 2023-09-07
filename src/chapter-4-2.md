@@ -1,4 +1,3 @@
-# Techniques for Building Inclusive Teams
 
 Building inclusive teams requires intentional effort and ongoing commitment. In this chapter, we'll explore techniques for promoting diversity and inclusion in the workplace.
 

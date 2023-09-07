@@ -1,5 +1,3 @@
-Introduction
-============
 
 In today's fast-paced, ever-changing world, organizations and communities face increasingly complex challenges. These challenges require innovative solutions that may not be immediately obvious. That's where leading with creativity comes in.
 
@@ -19,5 +17,4 @@ Benefits of Unlocking Innovative Solutions for Complex Challenges
 Leaders who prioritize creativity and innovation can see significant benefits, including competitive advantage, improved efficiency, greater impact, and increased engagement. By unlocking innovative solutions to complex challenges, leaders can create a more resilient and adaptable organization or community.
 
 In the following chapters, we'll explore different components of effective creative leadership and provide strategies for developing self-awareness and building trust through effective creative leadership practices.
-
 

@@ -1,5 +1,3 @@
-Chapter 3: Encouraging Diverse Perspectives
-===========================================
 
 In this chapter, we'll explore the importance of encouraging diverse perspectives in creative leadership. By building inclusive teams and fostering a culture that values diverse perspectives, leaders can tap into the full range of human potential and unlock truly innovative solutions to complex challenges.
 
