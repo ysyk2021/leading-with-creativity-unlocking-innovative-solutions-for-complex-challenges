@@ -1,5 +1,4 @@
-Chapter: Addressing Common Obstacles and Challenges in Applying Creative Leadership to Real-World Challenges
-============================================================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Introduction
 ------------

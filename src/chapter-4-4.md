@@ -1,5 +1,4 @@
-Chapter: Building a Culture of Respect and Appreciation for Difference
-======================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Introduction
 ------------

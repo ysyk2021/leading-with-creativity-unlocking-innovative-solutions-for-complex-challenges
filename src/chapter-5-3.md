@@ -1,5 +1,4 @@
-Chapter: Developing an Environment that Supports Ideation and Experimentation
-=============================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Introduction
 ------------
